@@ -8,6 +8,9 @@ Have you ever wished you could make your writing sound more like a human instead
 ## Ai Tools 👇👇👇
 
 ![Synthesia AI Discount Banner](https://cdn.prod.website-files.com/63994dae1033718bee6949ce/65ac1033258a8d885ec08449_bypassgpt-ai-logo.png)
+<a href="https://fas.st/t/azdLGw1k">
+  <img src="https://github.com/user-attachments/assets/09f62a0e-4126-421a-ac4e-00c289a9206d" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
 ## [Use This Link To Get 90% OFF](https://bypassgpt.ai/?ref=ztlkmtn)
 ## [Use This Link To Get 90% OFF](https://bypassgpt.ai/?ref=ztlkmtn)
 
@@ -39,6 +42,9 @@ Using your promo code is as easy as 1-2-3!
 3. **Enjoy Savings**: Watch the price drop instantly!  
 ## Ai Tools 👇👇👇
 ![Synthesia AI Discount Banner](https://cdn.prod.website-files.com/63994dae1033718bee6949ce/65ac1033258a8d885ec08449_bypassgpt-ai-logo.png)
+<a href="https://fas.st/t/azdLGw1k">
+  <img src="https://github.com/user-attachments/assets/09f62a0e-4126-421a-ac4e-00c289a9206d" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
 ## [Use This Link To Get 90% OFF](https://bypassgpt.ai/?ref=ztlkmtn)
 ## [Use This Link To Get 90% OFF](https://bypassgpt.ai/?ref=ztlkmtn)
 
@@ -83,5 +89,8 @@ Don’t let robotic writing slow you down. With a **BypassGPT AI promo code**, y
 Perfect for students, writers, or anyone who wants to sound human while saving money! 🎉
 ## Ai Tools 👇👇👇👇
 ![Synthesia AI Discount Banner](https://cdn.prod.website-files.com/63994dae1033718bee6949ce/65ac1033258a8d885ec08449_bypassgpt-ai-logo.png)
+<a href="https://fas.st/t/azdLGw1k">
+  <img src="https://github.com/user-attachments/assets/09f62a0e-4126-421a-ac4e-00c289a9206d" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
 ## [Use This Link To Get 90% OFF](https://bypassgpt.ai/?ref=ztlkmtn)
 ## [Use This Link To Get 90% OFF](https://bypassgpt.ai/?ref=ztlkmtn)
